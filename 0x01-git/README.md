@@ -1,1 +1,1 @@
-Some text for this read me
+My name is Foster Adu-Gyamfi
